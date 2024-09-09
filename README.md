@@ -11,3 +11,4 @@ Reasons why Cats are adorable and are not evil:
 
 1. They are a great friend when you need one
 2. They do come to cuddle and care when you cry (sometimes)
+3. They can be a good alram clock early in the mornings
